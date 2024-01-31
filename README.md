@@ -3,5 +3,5 @@
 - 🌱 I’m currently studying data journalism at the Columbia Journalism School
 - 📫 How to reach me: email me renata.daou@columbia.edu
 - 😄 Pronouns: she/her
-- 🩷 Check out: https://wwww.renatadaou.com & https://renatadaou.github.io/Renata-Daou/
+- 🩷 Check out: https://www.renatadaou.com/ & https://renatadaou.github.io/Renata-Daou/
 - ⚡ Fun fact: I wrote a book at 16!
